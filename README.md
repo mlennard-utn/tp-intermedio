@@ -6,4 +6,4 @@ Lo tomo como valido de todos modos.
 
 El resto esta perfecto, tal como se pidió.
 
-NOTA FINAL: 10
+Aprobado, nota final: 10
